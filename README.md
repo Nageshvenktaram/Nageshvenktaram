@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nageshvenktaram
 - 👀 I’m interested in .web developement..
-- 🌱 I’m currently learning ..bE In electronoics and communication.
+- 🌱 I’m currently learning .FULL STACK JAVA DEVELOPER
 - 💞️ I’m looking to collaborate on rorempire...
 - 📫 How to reach me ...instagram and nageshvakrna@gmail.com
 
